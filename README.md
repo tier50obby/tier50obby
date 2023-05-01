@@ -1,5 +1,8 @@
-Hey, I'm Valerie! (or tier, whatever floats your boat, I suppose.)
+hiya! 
 
-I'm mainly here to look at other people's work, not make my own.
+i'm valerie; i do stuff sometimes.
 
-You can't talk to me - Er, sorry. 
+sometimes it comes back to haunt me...it's really scary when that happens.
+
+you can find me as visforvictory@mastodon.social
+
